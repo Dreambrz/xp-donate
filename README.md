@@ -3,4 +3,6 @@
                             
   a plugin for give xp if you have strenght potion and you hit a player
 
+download here https://link-hub.net/1137661/file-dowload
+
 
